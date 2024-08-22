@@ -1,8 +1,9 @@
-###  anaaliss
+###  Oesposito vida!
 
- **anaaliss**
+ **Oesposito**
 
- _anaaliss_
+ _Ta3TaLindo
+ ＳＯＣＡﾠＦＯＦＯㅤ☯️_
 
  🫀
 
