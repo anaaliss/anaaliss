@@ -9,4 +9,4 @@
 
  (-)NosTaNaPista!
  
-![](https://www.gifcen.com/wp-content/uploads/2021/06/discord-gif-12.gif)
+![](https://i.makeagif.com/media/7-27-2021/Q1RXwX.gif)
